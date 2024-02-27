@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...AI
 - 🌱 I’m currently learning ...computer engineering
    💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...@yasserweslatyy@gmail.com
+- 📫 How to reach me ...yasserweslatyy@gmail.com
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...
 
